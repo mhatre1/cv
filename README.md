@@ -1,4 +1,4 @@
-# cv  AN MHATRE: SELECTED PUBLICATIONS (IN CHRONOLOGICAL ORDER): 
+AN MHATRE: SELECTED PUBLICATIONS (IN CHRONOLOGICAL ORDER): 
 
 Selected from over 50 peer reviewed and non peer reviewed publications
 
